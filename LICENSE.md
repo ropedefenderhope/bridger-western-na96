@@ -1,4 +1,4 @@
-
+bridger western Scripts top is the best bridger western Script, featuring esp and one-hit kill. Safe and powerful for all your needs.
 
 
 
